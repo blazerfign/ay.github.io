@@ -1,1 +1,1 @@
-# ay.github.io
+Please note that I am not responsible for any consequences, including getting banned, that may occur as a result of using this software. It is important to be aware of the risks involved and make sure you understand the terms and conditions of any platform before proceeding.
